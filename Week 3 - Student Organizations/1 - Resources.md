@@ -1,0 +1,5 @@
+* [About Student Organizations at UC San Diego](https://getinvolved.ucsd.edu/orgs/about/index.html)
+* [List of Current UCSD Student Organizations](https://studentorg.ucsd.edu/)
+* [September 2020 Student Organization and Events Promotion (UCSD subreddit)](https://www.reddit.com/r/UCSD/comments/inh10m/september_prefall_quarter_student_organization/)
+* [Fall 2020 Week 0 & 1 Student Organization and Events Promotion (UCSD subreddit)](https://www.reddit.com/r/UCSD/comments/j1pll8/week_0_student_organization_and_events_promotion/)
+* [Fall 2020 Week 2 & 3 Student Organization and Events Promotion (UCSD subreddit)](https://www.reddit.com/r/UCSD/comments/j9zoum/week_2_3_student_organization_and_events/)
